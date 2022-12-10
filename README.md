@@ -6,7 +6,7 @@
  
 <hr>
  
-  <--📫 How to reach me  eneskaraca0512@gmail.com-->
+  📫 How to reach me  eneskaraca0512@gmail.com
  
 <hr>
 
